@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **https://www.linkedin.com/in/mehmetnl/**
 
-- ⚡ Fun fact that I like singing while working**
+- ⚡ Fun fact that I like singing while working !
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
